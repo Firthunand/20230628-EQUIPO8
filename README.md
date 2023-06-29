@@ -1,1 +1,1 @@
-fernando de la barra - Diana Peralta
+fernando de la barra - Diana Peralta - Antoni Quispealaya
