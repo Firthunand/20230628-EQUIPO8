@@ -1,1 +1,1 @@
-fernando de la barra - Diana Peralta - Antoni Quispealaya-Cristina Tumbajoy
+fernando de la barra - Diana Peralta - Antoni Quispealaya-Cristina Tumbajoy - Franco Dalmaso
